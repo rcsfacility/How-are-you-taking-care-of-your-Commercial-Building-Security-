@@ -63,7 +63,7 @@ Warehouses develop rodents, pests, and germs if not kept clean. Moreover, an unc
 <li>Cleaning of packages and products.</li></ul>
 
 
-RCS CORPINTEL is a Safety Management services provider. It provides professional housekeeping and security staff for small and large properties. We encourage the employees for excellent service and cater to specific client needs.
+RCS CORPINTEL is a <a href="http://rcsfacility.com/security.html">Safety Management services</a> provider. It provides professional housekeeping and security staff for small and large properties. We encourage the employees for excellent service and cater to specific client needs.
 
-For more information visit us http://rcsfacility.com/security.html  or call on 9327116823
+For more information call on 9327116823
 
